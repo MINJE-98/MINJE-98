@@ -2,3 +2,4 @@
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/a752d514-f402-42e5-98d5-8736fbfcb79c)
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/c38fbe5b-f6e6-409e-a2e2-5e044e4756bd)
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/a3c22fac-8206-4574-bdc9-5764113b9324)
+![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/571167f7-63fd-4e98-a06a-920f2fe274a3)
