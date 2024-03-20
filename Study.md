@@ -6,3 +6,5 @@
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/b64b7dd0-9408-46cd-8701-b7afee883400)
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/00ef1da4-4e08-4a76-a376-fd4aad530801)
 ![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/f7cd98f2-02f5-46f5-b507-69be580e5d38)
+![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/3e792727-473d-4204-bd9f-563fa86d509a)
+![image](https://github.com/MINJE-98/MINJE-98/assets/56459078/f58e8f35-1647-40ee-818c-1c6f00a005d3)
